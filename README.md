@@ -1,2 +1,2 @@
 
-Currently working on pretty cool stuff🧘🏾‍♀️
+Currently working on pretty cool stuff
